@@ -1,1 +1,0 @@
-# ersinciftci.github.io
